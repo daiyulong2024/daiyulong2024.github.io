@@ -8,16 +8,16 @@
 
 ​                                                                      There is nothing in the world that cannot be done.
 
-​                                                                                                                                                         ——[daiyulong](daiyulong.html)
+​                                                                                                                                                         ——[daiyulong](daiyulong2024.github.io/writer/daiyulong.html)
 
 2. ​                                                                                                          只要努力了，就不后悔。
 
    ​                                                                     As long as you work hard, you will not regret.
 
-   ​                                                                                                                                                 ——[daiyulong](daiyulong.html)
+   ​                                                                                                                                                 ——[daiyulong](daiyulong2024.github.io/writer/daiyulong.html)
 
 3. ​                                                                                               老天爷只眷顾那些努力了的人。
 
 ​                                                                                                 God only cares for those who try.
 
-​                                                                                                                                                         ——[daiyulong](daiyulong.html)
+​                                                                                                                                                         ——[daiyulong](daiyulong2024.github.io/writer/daiyulong.html)
