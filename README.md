@@ -34,10 +34,10 @@ I am very glad that you can come to my blog, where I share my life, study and wo
 
 ## Blog content
 
-* ** Life Bits ** : Share my daily life, travel experiences, and my perception of life.
-* ** Technology Sharing ** : As a technician, I will share my experience and skills in programming, software use, etc.
-* ** Reading Notes ** : I will share the books I have read, as well as my understanding and thinking about these books.
-* ** Project Introduction ** : I will introduce the projects I am working on or have completed, as well as my experience and lessons learned in these projects.
+* ** Life Bits** : Share my daily life, travel experiences, and my perception of life.
+* ** Technology Sharing** : As a technician, I will share my experience and skills in programming, software use, etc.
+* ** Reading Notes** : I will share the books I have read, as well as my understanding and thinking about these books.
+* ** Project Introduction** : I will introduce the projects I am working on or have completed, as well as my experience and lessons learned in these projects.
 
 ## How to participate in the blog
 
