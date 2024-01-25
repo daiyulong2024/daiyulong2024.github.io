@@ -27,7 +27,6 @@
 
 ---
 
----
 
 # Welcome to my blog
 
